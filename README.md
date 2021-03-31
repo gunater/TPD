@@ -1,1 +1,1 @@
-TPD
+Teoria podejmowania decyzji
